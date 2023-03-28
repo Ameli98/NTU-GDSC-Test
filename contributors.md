@@ -2,7 +2,7 @@
 > If your student id is not in the list, feel free to add your own 😌
 - B07303024: itsalicelee
 - B09902134: hcc429
-- B08504098:
+- B08504098: Ameli98
 - B08208006:
 - B10303105:
 - B08902084:
